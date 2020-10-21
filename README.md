@@ -6,3 +6,5 @@ Build The Earth 121 projection.
 https://drive.google.com/drive/folders/1RuIClj5k9hI7i3NJv5cLOhdohfn4S9tR
 
 Comming soon...
+
+https://youtu.be/pzyJFVhBSCI

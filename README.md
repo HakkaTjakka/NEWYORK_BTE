@@ -13,3 +13,5 @@ https://youtu.be/pzyJFVhBSCI
 
 ![clipboard_small](https://user-images.githubusercontent.com/66055060/96845905-83bc6300-1451-11eb-9c92-380b5128c985.jpg)
 
+![clipboard_small](https://github.com/HakkaTjakka/NEWYORK_BTE/blob/main/FILES/NEWYORK_MAP/map_result/clipboard.jpg)
+

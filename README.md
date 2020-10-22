@@ -9,4 +9,5 @@ Comming soon...
 
 https://youtu.be/pzyJFVhBSCI
 
-HakkaTjakka/NEWYORK_BTE/blob/main/clipboard_small.jpg
+![r -16668 -11750](https://user-images.githubusercontent.com/66055060/96845801-61c2e080-1451-11eb-9725-9a2fdb8368a8.png)
+

@@ -12,7 +12,6 @@ https://youtu.be/pzyJFVhBSCI
 3179 region files:
 
 ![r -16668 -11750](https://user-images.githubusercontent.com/66055060/96845801-61c2e080-1451-11eb-9725-9a2fdb8368a8.png)
-
 ![clipboard_small](https://github.com/HakkaTjakka/NEWYORK_BTE/blob/main/FILES/NEWYORK_MAP/4/4/r.49.48.png)
 
 Area jpg small:
